@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MABG890103MOCRRN07
+MABG890103MOCRRN07
